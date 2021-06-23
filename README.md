@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Bibek Shrestha
+- 👋 Hi, I’m Bibek
 - 👀 I’m Care Team member at Toucan Toco
 - 📫 You can reach me at bibek.shrestha@toucantoco.com
 
